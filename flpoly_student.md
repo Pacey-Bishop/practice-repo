@@ -1,6 +1,6 @@
-## First Name Last Name
+## Pacey Bishop
 
-### Term Year 
+### Fall 2022 
 
 DSBA student at [Florida Polytechnic University](https://www.floridapoly.edu) currently enrolled in: 
 
